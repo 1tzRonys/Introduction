@@ -8,4 +8,4 @@
 - Youtube : itsronysss
 
 # Feel free to dm me at any time on discord.
-# Just dont ask stupid questions please!
+- Just dont ask stupid questions please!
