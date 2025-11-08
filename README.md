@@ -5,7 +5,7 @@
 
 # Socials
 - Discord : itsronysss
-- Youtube : itsronysss
+- Youtube : itsronysss (https://www.youtube.com/@itsronysss)
 
 # Feel free to dm me at any time on discord.
 - Just dont ask stupid questions please!
